@@ -31,7 +31,7 @@ I hope I still pass
 *Between computing and art?*  <br>
 <br>
 <br>
-Reapproach   <br>
+Re approach   <br>
 what I’ve just asked  <br>
 ik moet het doen met *(een beetje)* vaart  <br>
 <br>
@@ -177,6 +177,7 @@ it really is **creatively** vast <br>
 
  <br>
  <br>
-
+  <br>
+ <br>
 
             
