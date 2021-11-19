@@ -1,6 +1,11 @@
 ## An Ode to my (eye opening) baby steps on the technological playground (and Nirvana)
 
 <br>
+ 
+   ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆
+
+
+<br>
 Half ten <br>   
 I thought we’d start  <br>
 
@@ -91,7 +96,6 @@ that's falling down  <br>
 It's like a click bait rabbit hole  
 
  <br>
- <br>
 
 Github   
 Markdown   
@@ -103,6 +107,7 @@ like Linus
 without blanket  
 I thought I’d drown  
 
+ <br>
 
       //((~;; \\
       \`_   ,' ))  
@@ -118,10 +123,16 @@ I thought I’d drown
          /~_/____ \ ______--/\/\\_  
          
 
+<br>
 
 Arduino, or was it Raspberry Pi?  
 Last week they made Nirvana cry  
 
+<br>
+
+    ಥ﹏ಥ   ಥ‿ಥ   ಥ_ಥ
+ 
+<br>
 
 This week   
 I looked around   
@@ -134,22 +145,13 @@ in the technological playground
 <br>
 
 Spike and Sofia   
-Zemeckis and gale  
+Zemeckis and Gale  
 It’s seems they weren’t so far off our tale  
 
- <br>
- <br>
+
+<br>
 
 
-        /)/) ⠀ (\(\
-       ( . .)♡(. . )
-       
-       
-*How deep is the link*   
-*Between computing and art?*  
-
-
-       
             .              .   .'.     \   /
            \   /      .'. .' '.'   '  -=  o  =-
         -=  o  =-  .'   '              / | \
@@ -165,9 +167,22 @@ It’s seems they weren’t so far off our tale
             ||___||                |[:::]|
             |[:::]|                '-----'
             '-----'
-          
+
+
      
+      
+<br> 
+
+*How deep is the link*   
+*Between computing and art?*  
+
  <br>
+
+
+        /)/) ⠀ (\(\
+       ( . .)♡(. . )
+      
+     
  <br>
      
 I have reapproached what I was asked  <br>
@@ -175,9 +190,9 @@ and with this second thought <br>
 I see   <br>
 it really is **creatively** vast <br>
 
- <br>
- <br>
   <br>
- <br>
+  <br>
+  
+  ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆
 
-            
+           
