@@ -1,62 +1,127 @@
 ## An Ode to my (eye opening) baby steps on the technological playground (and Nirvana)
 
+<br>
+Half ten <br>   
+I thought we’d start  <br>
 
-Half ten   
-I thought we’d start  
+ <br>    
+But I was wrong <br>  
+and late to class  <br>
+  
+  <br>
+I’m doing this   <br>
+I hope I still pass 
+<br>
+<br>
+ <br>
+ 
+           .-.-.
+      ((  (__I__)  ))
+        .'_....._'.
+       / / .12 . \ \
+      | | '  |  ' | |
+      | | 9  /  3 | |
+       \ \ '.6.' / /
+        '.`-...-'.'
+         /'-- --'\
+        `"""""""""`  
+<br>
+
+*How deep is the link*  <br>
+*Between computing and art?*  <br>
+<br>
+<br>
+Reapproach   <br>
+what I’ve just asked  <br>
+ik moet het doen met *(een beetje)* vaart  <br>
+<br>
+<br>
+just as with  <br> 
+a second thought   <br>
+I suppose it is <br>
+fairly vast  <br>
+<br>
+<br>
+Coding,  <br>
+*to start it all*  <br>
+<br>
+<br>
+Is echt alleen maar  <br>
+*taal* and *taal*  <br>
+<br>
+<br>
+Maar Nederlands <br>
+is het niet  <br>
+you don’t just find it on the street  <br>
+
+ <br>
+
+     ,------------.                
+     |             `.           
+     |.   Eat Me     |     
+     |               |   
+     `---------------'
+     
+<br>     
+
+     ,------------.                
+     |              `.           
+     |   Drink me    |     
+     |               |   
+     `---------------'
+
+<br>
+
+     ,------------.                
+     |             `.           
+     |.   READMe     |     
+     |               |   
+     `---------------'
+
+<br>
+
+**... FILE**  
+
+ <br>
+
+It really has <br>
+been a while  <br>
+I’m the girl <br>
+that's falling down  <br>
+It's like a click bait rabbit hole  
+
+ <br>
+ <br>
+
+Github   
+Markdown   
+**Good grief!**  
+*Charlie Brown*  
 
 
-But I was wrong   
-and late to class  
+like Linus   
+without blanket  
+I thought I’d drown  
 
 
-I’m doing this   
-I hope I still pass  
+      //((~;; \\
+      \`_   ,' ))  
+      _~o)     ';
+      (          )  
+    (''-___  ,_- 
+     | |   ;---__
+     |  )-|===|  \
+      ~--|====|~~| 
+         |====\\\'._
+         |______\  \ \
+           |_|__|(    ~~---/~\/\ 
+         /~_/____ \ ______--/\/\\_  
+         
 
 
-*How deep is the link*  
-*Between computing and art?*  
+Arduino, or was it Raspberry Pi?  
+Last week they made Nirvana cry  
 
-
-Reapproach   
-what I’ve just asked  
-ik moet het doen met *(een beetje)* vaart  
-
-just as with   
-a second thought   
-I suppose it is fairly vast  
-
-
-Coding,  
-*to start it all*  
-
-
-Is echt alleen maar  
-*taal* and *taal*  
-
-
-Maar Nederlands is het niet  
-you don’t just find it on the street  
-
-Eat me   
-drink me  
-Read me   
-**file**  
-
-It really has been a while
-I’m the girl that's falling down
-It's like a click bait rabbit hole
-
-Github 
-Markdown 
-Good grief!
-Charlie Brown
-
-like Linus 
-without blanket
-I thought I’d drown
-
-Arduino, or was it Raspberry Pi?
-Last week they made Nirvana cry
 
 This week   
 I looked around   
@@ -66,18 +131,22 @@ The games, films, screens and sounds
 Double dutch and monkey bars  
 in the technological playground  
 
+<br>
 
 Spike and Sofia   
 Zemeckis and gale  
 It’s seems they weren’t so far off our tale  
+
+ <br>
+ <br>
 
 
         /)/) ⠀ (\(\
        ( . .)♡(. . )
        
        
-How deep is the link   
-Between computing and art?  
+*How deep is the link*   
+*Between computing and art?*  
 
 
        
@@ -98,10 +167,16 @@ Between computing and art?
             '-----'
           
      
+ <br>
+ <br>
      
-I’ve reapproached what I was asked  
-And with this second thought I see   
-it really is **creatively** vast
+I have reapproached what I was asked  <br>
+and with this second thought <br>
+I see   <br>
+it really is **creatively** vast <br>
+
+ <br>
+ <br>
 
 
             
